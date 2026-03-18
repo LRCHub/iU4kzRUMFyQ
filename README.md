@@ -1,0 +1,75 @@
+# j-hope – MONA LISA
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I like my girls
+Pretty so fine
+1 plus the 9
+How you get me goin'
+Might just blow it
+I like my girls
+Pretty in the face
+Art piece to frame
+Mona Mona Lisa
+Yeah, I need ya
+I like my girls
+Lookin' just like a paintin'
+Don't need no validation
+Pretty so fine
+1 plus the 9
+How you get me goin'
+Might just blow it
+I like my girls
+I like my girls
+I like I like
+I like my girls
+Independent check (check)
+Got her own check (check)
+By the way you look
+yeah, you 'bout to cause a wreck
+Yeah, she know I'm on the move
+I can't stop, I'm up next
+But she hold me down
+She's so sexy I'm obsessed yeah
+Toes all in the sand come
+and walk with me
+(walk it, walk it)
+Love the way you take the stress
+and Louis off of me
+Cuz she bad and she know it
+Yeah, that's all I need
+Earring with the diamond
+match her smile
+Yeah, she sparklin'
+Yeah, you got me all in
+Bad bad bad,
+I know your exes callin'
+The way you look
+I understand the hype
+You know you're just my type
+Gotta gotta getcha
+Cuz you know just what I like
+I like my girls
+Pretty so fine
+1 plus the 9
+How you get me goin'
+Might just blow it
+I like my girls
+Pretty in the face
+Art piece to frame
+Mona Mona Lisa
+Yeah, I need ya
+I like my girls
+Lookin' just like a paintin'
+Don't need no validation
+Pretty so fine
+1 plus the 9
+How you get me goin'
+Might just blow it
+I like my girls
+I like my girls
+I like my girls
+I like my girls
+I like I like
+```
